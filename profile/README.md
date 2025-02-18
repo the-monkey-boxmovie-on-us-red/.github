@@ -8,7 +8,7 @@ In the vibrant realm of international romance cinema, filmmakers continue to pus
 
 ### [➤ ►🌍📺📱👉  The Monkey (2025) F𝚞ll Mo𝚟ie Downl𝚘ad](https://rb.gy/j5yojw)
 
-[![watch_full_movie](#GAMBAR#)
+[![watch_full_movie](https://media.themoviedb.org/t/p/w220_and_h330_face/cR3AChrpwhQB0g4Nor9S7XS7Kn8.jpg)
 
 Introduction & Movie Overview
 The Monkey (2025) is a contemporary romantic drama directed by [Director's Name] and starring [Lead Actor/Actress Name] in a breakthrough role. The film follows the story of [Character Name], a young individual whose impulsive decisions and past heartbreak lead them to the bustling streets of London—a city that mirrors both the beauty and challenges of modern love.
